@@ -6,9 +6,6 @@
 
 ![](https://komarev.com/ghpvc/?username=shabeersha&label=PROFILE+VIEWS)
 
-[![Spotify](https://novatorem.rajchowdhury420.vercel.app//api/spotify)](https://open.spotify.com/user/t9utenv06b8jgreapcwu4814h?si=y0TPvz41TwmIvEoK1oxYhg)
-
-
 
 <br />
 
